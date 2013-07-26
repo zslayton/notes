@@ -1,0 +1,23 @@
+# The Ol' Webcomic List
+
+* [Penny Arcade](http://penny-arcade.com/)
+* [PVP Online](http://pvponline.com/comic/)
+* [The Trenches](http://trenchescomic.com/)
+* [Ctrl-Alt-Del](http://www.cad-comic.com/cad/)
+
+* [Order of the Stick](http://www.giantitp.com/Comics.html)
+* [Table Titans](http://tabletitans.com/comic/)
+
+* [XKCD](http://xkcd.com)
+
+* [Least I Could Do](http://www.leasticoulddo.com/)
+* [Girls With Slingshots](http://www.girlswithslingshots.com/)
+
+* [Saturday Morning Breakfast Cereal](http://www.smbc-comics.com/) 
+* [Wondermark!](http://wondermark.com/)
+* [Dinosaur Comics](http://qwantz.com/index.php)
+
+* [Multiplex](http://multiplexcomic.com/)
+* [Bad Machinery](http://scarygoround.com/)
+
+* [Sinfest](http://www.sinfest.net/)
